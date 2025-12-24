@@ -14,7 +14,7 @@
 ![JavaScript](https://img.shields.io/badge/-JavaScript-F7DF1E?style=flat&logo=javascript&logoColor=black)
 
 ## 📫 Contato
-- 🌐 Portfolio: [seu-site.com]
+- 🌐 Portfolio: Em breve..
 - 📸 Instagram: [@JhanaSardinha](https://instagram.com/jhanasardinha)
 - 💼 LinkedIn: [Jhana Sardinha](seu-linkedin)
 
