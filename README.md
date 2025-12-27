@@ -16,7 +16,7 @@
 ## 📫 Contato
 - 🌐 Portfolio: Em breve..
 - 📸 Instagram: [@JhanaSardinha](https://www.instagram.com/jhana_sardinha/)
-- 💼 LinkedIn: [Jhanaína Sardinha](www.linkedin.com/in/jhanaína-sardinha)
+- 💼 LinkedIn: [Jhanaína Sardinha](https://www.linkedin.com/in/jhanaína-sardinha)
 
 ---
 💚 Sempre aprendendo e criando!
